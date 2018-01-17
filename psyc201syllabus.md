@@ -15,3 +15,6 @@ Butler, J. *Gender Trouble*
 
 **Week 4**
 Fanon, F. *Black Skin, White Masks*
+
+**Week 5** 
+Halberstam, J. *In a Queer Time and Place*
